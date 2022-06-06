@@ -3,7 +3,7 @@ ___
 ##Contacts
 * __Location:__ _Minsk, Belarus_
 * __Phone:__ _+375292964570_
-* __Email:__ yurakardash@icloud.com_
+* __Email:__ yuriy_kardash@mail.ru_
 * __Github:__ _YuriyKardash98_
 ___
 ##About me
